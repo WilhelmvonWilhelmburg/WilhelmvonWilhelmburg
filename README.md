@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on mods to games I play
 - 📫 If you want to reach me try using discord. My username is losowygosc4031 my display name is Wilhelm von Wilhelmburg
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I'm to boring to find something what would fit here.
+- ⚡ Fun fact: IDK
 
 <!---
 WilhelmvonWilhelmburg/WilhelmvonWilhelmburg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
